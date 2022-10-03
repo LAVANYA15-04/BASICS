@@ -1,0 +1,2 @@
+# BASICS
+To learn 
